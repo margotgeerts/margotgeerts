@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, I'm Margot 👋
 
 <div align="center">
   <picture>
